@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **omsoni833@gmail.com**
 
-- 📄 Know about my experiences [https://9d9fadc1-d8d6-4ff4-b4d4-9c3780b63464.filesusr.com/ugd/e9e224_8a0ba30953af40c7b843c08be8406d51.docx?dn=Om%27s_Resume.docx](https://9d9fadc1-d8d6-4ff4-b4d4-9c3780b63464.filesusr.com/ugd/e9e224_8a0ba30953af40c7b843c08be8406d51.docx?dn=Om%27s_Resume.docx)
+- 📄 Know about my experiences [https://drive.google.com/file/d/14bcHOVL_gl6fZH1xE8NCsZWQCL0AUqCT/view?usp=sharing](My Latest Resume)
 
 - ⚡ Fun fact **I love Cars and Tech and Data ❤️**
 
