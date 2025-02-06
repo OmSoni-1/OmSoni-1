@@ -3,13 +3,13 @@
 
 - 🌱 I’m currently learning **Machine Learning and Data Science**
 
-- 👨‍💻 All of my projects are available at [https://omsoni833.wixsite.com/om-portfolio](https://omsoni833.wixsite.com/om-portfolio)
+- 👨‍💻 All of my projects are available at [My Portfolio](https://omsoni833.wixsite.com/om-portfolio)
 
 - 💬 Ask me about **Python, SQL, Data Analysis**
 
 - 📫 How to reach me **omsoni833@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/14bcHOVL_gl6fZH1xE8NCsZWQCL0AUqCT/view?usp=sharing](My Latest Resume)
+- 📄 Know about my skills and experiences [My Latest Resume](https://drive.google.com/file/d/14bcHOVL_gl6fZH1xE8NCsZWQCL0AUqCT/view?usp=sharing)
 
 - ⚡ Fun fact **I love Cars and Tech and Data ❤️**
 
